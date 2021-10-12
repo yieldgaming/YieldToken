@@ -13,7 +13,7 @@ Supply : 50,000
 
 🏆Plan🏆
 
-☑️ Website : will be launched on 13th October
+☑️ Website : www.yieldgaming.org
 
 ◾️ Stealth Launch
 ◾️ Lp will be locked for 2 years 🔐
