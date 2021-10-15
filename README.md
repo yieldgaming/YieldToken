@@ -22,7 +22,7 @@ Supply : 50,000
 ◾️ Pancake Swap
 ◾️ Fair Launch
 
-◻️ Telegram : https://t.me/Yield_Gaming
+◻️ Telegram : https://t.me/YieldGaming
 ◻️ Twitter: https://twitter.com/GamingYield
 ◻️ Instagram: https://www.instagram.com/yield.gaming/
 ◻️ Telegram Announcement: https://t.me/Yield_Announcement
